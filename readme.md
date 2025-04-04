@@ -41,7 +41,7 @@ If you have any questions, feedback, or collaboration opportunities, feel free t
 
 📧 Email: esthermuthoni030@gmail.com
 📱 Phone: 0111356318
-🔗 GitHub: Your GitHub Profile
+
 
 
 
